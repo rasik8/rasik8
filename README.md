@@ -4,3 +4,4 @@ I am self-taught and a passionate data driven individual seeking to grow within 
 
 
 🤝
+![Screenshot 2023-04-11 at 18 03 49](https://user-images.githubusercontent.com/127439365/231236938-669f554b-dcb4-42f5-b969-49ce4f96e96a.png)
