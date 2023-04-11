@@ -4,5 +4,6 @@ I am a Data Analyst. Over the last year, I’ve been developing my skills, in SQ
 
 I am self-taught and a passionate data driven individual seeking to grow within the data field and drive business insights. 
 
-
-
+- 🌍 I am based in Cardiff
+- ✉️ You can contact me at rasik@limbani.com
+- fghf
