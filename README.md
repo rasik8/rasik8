@@ -6,4 +6,4 @@ I am self-taught and a passionate data driven individual seeking to grow within 
 
 - 🌍 I am based in Cardiff
 - ✉️ You can contact me at rasik@limbani.com
-- linkedin. www.linkedin.com/in/rasiklal-limbani-004931163
+- linkedin. https://www.linkedin.com/in/rasiklal-limbani-004931163
