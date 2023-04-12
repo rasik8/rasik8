@@ -1,4 +1,5 @@
-![strip](https://user-images.githubusercontent.com/127439365/231260980-04b19c65-b003-4805-8f2f-c453ccf14d06.jpg)
+![strip](https://user-images.githubusercontent.com/127439365/231436842-3236e3ed-297e-4e83-8f79-bfc08d915b57.jpg)
+
 
 
 
